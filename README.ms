@@ -1,2 +1,0 @@
-# quick github
-## KAORI CICAK
